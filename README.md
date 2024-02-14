@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **golegaonkarchinmay1629@gmail.com**
 
-- 📄I’m looking for an internship and Job. Here my resume [https://drive.google.com/file/d/16L_2Evdvpt-nQo5u27BfrZBJ2Pxo6mGH/view?usp=sharing](https://drive.google.com/file/d/16L_2Evdvpt-nQo5u27BfrZBJ2Pxo6mGH/view?usp=sharing)
+- 📄I’m looking for an internship and Job. Here my resume [https://drive.google.com/file/d/1TxOfdUoWmIInZHQO0JSz1hs_EWJSKLrj/view?usp=sharing](https://drive.google.com/file/d/1TxOfdUoWmIInZHQO0JSz1hs_EWJSKLrj/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
